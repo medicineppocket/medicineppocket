@@ -1,16 +1,24 @@
-## Hi there 👋
+## ❝ 𝐓𝐡𝐞 𝐨𝐧𝐥𝐲 𝐭𝐡𝐢𝐧𝐠 𝐭𝐡𝐚𝐭 𝐈 𝐰𝐨𝐧'𝐭 𝐤𝐧𝐨𝐰 
+##   𝐅𝐨𝐫𝐠𝐢𝐯𝐞𝐧 𝐧𝐞𝐠𝐥𝐢𝐠𝐞𝐧𝐜𝐞 ❞
 
-<!--
-**medicineppocket/medicineppocket** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+            VERS 5
+https://github.com/user-attachments/assets/ce68349d-a0ff-4485-b410-498d8c8695d5
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋
+RUS/ENG
+
+∠↳..𝐍𝐀𝐌𝐄 - 𝐅𝐨𝐤𝐧𝐞𝐲/𝐅𝐨𝐤
+
+∠↳.. 𝐏𝐑𝐎𝐍𝐎𝐔𝐍𝐒 - 𝐚𝐧𝐲 𝐢𝐝𝐜 𝐭𝐛𝐡
+
+.......
+
+Слава Богу МИСТЕР КИТТИ🐈‍⬛🎼 СЛАВА МИСТЕР КИТТИ🐈‍⬛🎼 АНГЕЛА ХРАНИТЕЛЯ МИСТЕР КИТТИ КАЖДОМУ ИЗ ВАС 🐈‍⬛🎼 БОЖЕ ХРАНИ МИСТЕР КИТТИ🐈‍⬛🎼 СПАСИБО ВАМ НАШИ 🐈‍⬛🎼 ХРАНИ БОГ🐈‍⬛🎼 Слава MR KITTY 🐈‍⬛🎼
+
+кста,создатель шедевра выше -  @lemon_cheg в тт.
+
+  
+𝐀𝐍𝐘𝐖𝐀𝐘 𝐅𝐎𝐊𝐍𝐄𝐘 𝐎𝐔𝐓 𝐗𝐃!
+
+мр.китти..хеехее..мр.китии..новыыфц...альбом...мехмжв
