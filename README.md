@@ -28,6 +28,6 @@ RUS/ENG
 ![medicine-pocket-reverse-1999](https://github.com/user-attachments/assets/f90c02ba-4a04-446f-9194-115f48da423f)
 
 
-𝐀𝐍𝐘𝐖𝐀𝐘 𝐅𝐎𝐊𝐍𝐄𝐘 𝐎𝐔𝐓 𝐗𝐃!
+𝐀𝐍𝐘𝐖𝐀𝐘 𝐅𝐎𝐊𝐍𝐄𝐘 𝐈𝐒 𝐎𝐔𝐓 𝐗𝐃!
 
 
