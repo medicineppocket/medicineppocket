@@ -1,6 +1,4 @@
-## ❝ I cared too much, my heart is real
-## You're leaving now, I'll slowly heal ❞
-
+## ❝𝐈 𝐜𝐚𝐫𝐞𝐝 𝐭𝐨𝐨 𝐦𝐮𝐜𝐡, 𝐦𝐲 𝐡𝐞𝐚𝐫𝐭 𝐢𝐬 𝐫𝐞𝐚𝐥. 𝐘𝐨𝐮'𝐫𝐞 𝐥𝐞𝐚𝐯𝐢𝐧𝐠 𝐧𝐨𝐰, 𝐈'𝐥𝐥 𝐬𝐥𝐨𝐰𝐥𝐲 𝐡𝐞𝐚𝐥❞
             VERS 5
 
 https://github.com/user-attachments/assets/7f696b65-789a-479c-a894-0494c966f403
