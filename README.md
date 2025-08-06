@@ -1,5 +1,5 @@
-## ❝ 𝐓𝐡𝐞 𝐨𝐧𝐥𝐲 𝐭𝐡𝐢𝐧𝐠 𝐭𝐡𝐚𝐭 𝐈 𝐰𝐨𝐧'𝐭 𝐤𝐧𝐨𝐰 
-##   𝐅𝐨𝐫𝐠𝐢𝐯𝐞𝐧 𝐧𝐞𝐠𝐥𝐢𝐠𝐞𝐧𝐜𝐞 ❞
+## ❝ I cared too much, my heart is real
+## You're leaving now, I'll slowly heal ❞
 
             VERS 5
 
